@@ -22,3 +22,11 @@ Thank you for visiting — feel free to explore my projects, follow along, or re
 **Next milestones:** Build ETL pipelines, deploy with Airflow, master data modeling, and contribute to open-source data projects.
 
 Let's build the future of data, one commit at a time. 🚀
+
+
+
+### Progress Log
+
+- **December 29, 2025:** Created the data-engineering-portfolio repository and added a professional README with bio, goals, and social links. Officially started the Data Engineering learning journey.
+
+
