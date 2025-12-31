@@ -30,7 +30,7 @@ Let's build the future of data, one commit at a time. 🚀
 - **December 29, 2025:** Created the data-engineering-portfolio repository and added a professional README with bio, goals, and social links. Officially started the Data Engineering learning journey.
 
 - - **December 30, 2025:** Started Technical English learning from the "Listening Time" YouTube channel. Completed LEVEL A1 (e.g., basic greetings and daily conversations). Focused on listening comprehension and shadowing technique. Feeling progress in understanding spoken English.
- 
-  - - **December 31, 2025:** Studied English for 1 full hour (Level A1). Focused on basic conversations, vocabulary, and listening comprehension using the "Listening Time" YouTube channel. Improved confidence in understanding slow spoken English and pronunciation.
+
+- - **December 31, 2025:** Studied English for 1 full hour (Level A1). Focused on basic conversations, vocabulary, and listening comprehension using the "Listening Time" YouTube channel. Improved confidence in understanding slow spoken English and pronunciation.
 
 
