@@ -32,5 +32,7 @@ Let's build the future of data, one commit at a time. 🚀
 - - **December 30, 2025:** Started Technical English learning from the "Listening Time" YouTube channel. Completed LEVEL A1 (e.g., basic greetings and daily conversations). Focused on listening comprehension and shadowing technique. Feeling progress in understanding spoken English.
 
 - - **December 31, 2025:** Studied English for 1 full hour (Level A1). Focused on basic conversations, vocabulary, and listening comprehension using the "Listening Time" YouTube channel. Improved confidence in understanding slow spoken English and pronunciation.
+ 
+- - **January 1, 2026:** Studied English for 1 full hour (Level A1). Completed lessons on basic greetings, introductions, and simple sentences using the "Listening Time" channel. Practiced listening and shadowing for better pronunciation.
 
 
