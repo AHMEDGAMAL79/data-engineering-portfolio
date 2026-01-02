@@ -36,5 +36,9 @@ Let's build the future of data, one commit at a time. 🚀
 - - **January 1, 2026:** Studied English for 1 full hour (Level A1). Completed lessons on basic greetings, introductions, and simple sentences using the "Listening Time" channel. Practiced listening and shadowing for better pronunciation.
 
  - - **January 2, 2026:** Studied English for 2 full hours. Watched 1 hour of a favorite TV series for natural listening practice, followed by 1 hour continuing the Level A1 series. Noticed significant improvement in understanding spoken English with less reliance on Arabic subtitles/translations.
+  
+ - - **January 3, 2026:** Studied English for 3 full hours. Spent 2 hours watching a favorite TV series, focusing on new vocabulary, pronunciation, and natural listening. Followed by 1 hour of continuing Level A1 structured lessons. Noticing steady improvement in comprehension.
+
+  Note: Considering evolving the study method to a balanced approach — 1 hour listening, 1 hour reading, 1 hour writing summaries of what I understood — to build all language skills more effectively.
 
 
