@@ -41,4 +41,6 @@ Let's build the future of data, one commit at a time. 🚀
 
   Note: Considering evolving the study method to a balanced approach — 1 hour listening, 1 hour reading, 1 hour writing summaries of what I understood — to build all language skills more effectively.
 
+ - **January 4, 2026:** Studied English for 1 hour, experimenting with the new balanced method: 30 minutes reading (A1 texts) and 30 minutes listening practice. Planning to increase study time gradually to avoid burnout and maintain consistency.
+
 
