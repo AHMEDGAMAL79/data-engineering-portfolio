@@ -43,4 +43,7 @@ Let's build the future of data, one commit at a time. 🚀
 
  - **January 4, 2026:** Studied English for 1 hour, experimenting with the new balanced method: 30 minutes reading (A1 texts) and 30 minutes listening practice. Planning to increase study time gradually to avoid burnout and maintain consistency.
 
+ - - **January 5, 2026:** Studied English for 1.5 hours, balancing reading, listening, and writing — felt better and more effective than previous days. Striving to increase study hours despite work fatigue; planning to switch to a job with fewer hours to dedicate more time to learning. Committed to consistency on Day 7 — Alhamdulillah. Praying to complete the 600-day plan and become a true Data Engineer from zero.
+
+
 
