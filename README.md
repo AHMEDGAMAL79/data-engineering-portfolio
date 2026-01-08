@@ -48,6 +48,9 @@ Let's build the future of data, one commit at a time. 🚀
   - - **January 06, 2026:** Studied for 1 hour and 40 minutes, focusing on Technical English. Split time between watching episodes (for natural listening), reading materials, and direct listening practice from Listening Time channel. Improved comprehension of daily conversations and pronunciation through shadowing.
    
   - - **January 07, 2026:** Studied English for 2 hours and 30 minutes. Focused on listening, reading, and pronunciation practice. Building confidence in understanding spoken English and technical terms.
+
+ -- **January 08, 2026:** Studied English for 2 hours and 20 minutes despite feeling physically tired. Focused on reading, vocabulary memorization, and listening practice. Proud of pushing through to maintain daily commitment and discipline. 
+    
     
 
 
