@@ -51,7 +51,9 @@ Let's build the future of data, one commit at a time. 🚀
 
   - - **January 08, 2026:** Studied English for 2 hours and 20 minutes despite feeling physically tired. Focused on reading, vocabulary memorization, and listening practice. Proud of pushing through to maintain daily commitment and discipline. 
 
-- **January 09, 2026:** Studied English for half an hour, focusing on listening and vocabulary review. Maintaining daily discipline despite the short session. 
+- **January 09, 2026:** Studied English for half an hour, focusing on listening and vocabulary review. Maintaining daily discipline despite the short session.
+
+- - **January 10, 2026:** Studied English for 2 hours and 30 minutes (reading, vocabulary, and listening). Submitted my first job proposal on Upwork for a data entry position – taking real steps toward freelance opportunities! 
     
     
 
