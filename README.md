@@ -53,7 +53,9 @@ Let's build the future of data, one commit at a time. 🚀
 
 - **January 09, 2026:** Studied English for half an hour, focusing on listening and vocabulary review. Maintaining daily discipline despite the short session.
 
-- - **January 10, 2026:** Studied English for 2 hours and 30 minutes (reading, vocabulary, and listening). Submitted my first job proposal on Upwork for a data entry position – taking real steps toward freelance opportunities! 
+- - **January 10, 2026:** Studied English for 2 hours and 30 minutes (reading, vocabulary, and listening). Submitted my first job proposal on Upwork for a data entry position – taking real steps toward freelance opportunities!
+ 
+- - **January 11, 2026:** Studied English for 2 hours and 45 minutes using a new effective method: Read a news article from Fox News, broke down sentences word-by-word using Oxford Dictionary for pronunciation and meanings, understood the context, wrote and read them multiple times, then rewrote from memory. Covered listening, reading, vocabulary, and writing – feeling happy and motivated!
     
     
 
