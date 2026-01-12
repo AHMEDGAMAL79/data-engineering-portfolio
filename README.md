@@ -58,6 +58,8 @@ Let's build the future of data, one commit at a time. 🚀
 - - **January 11, 2026:** Studied English for 2 hours and 45 minutes using a new effective method: Read a news article from Fox News, broke down sentences word-by-word using Oxford Dictionary for pronunciation and meanings, understood the context, wrote and read them multiple times, then rewrote from memory. Covered listening, reading, vocabulary, and writing – feeling happy and motivated!
  
  - - **January 12, 2026:** Studied English for 3 continuous hours (only 10-minute break) focusing on listening, reading, and writing. Downloaded "Fundamentals of Data Engineering" (445 pages) and planned a smart strategy: improve technical English first, then read the book for dual learning (English + data engineering concepts), followed by individual tool mastery and hands-on projects.
+  
+  - - **January 13, 2026:** Studied English for 45 minutes despite feeling exhausted and tired. Pushed through with determination – even a short session is better than none. Building daily discipline one step at a time.
     
     
 
