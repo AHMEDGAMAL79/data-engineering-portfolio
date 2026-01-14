@@ -60,6 +60,9 @@ Let's build the future of data, one commit at a time. 🚀
  - - **January 12, 2026:** Studied English for 3 continuous hours (only 10-minute break) focusing on listening, reading, and writing. Downloaded "Fundamentals of Data Engineering" (445 pages) and planned a smart strategy: improve technical English first, then read the book for dual learning (English + data engineering concepts), followed by individual tool mastery and hands-on projects.
   
   - - **January 13, 2026:** Studied English for 45 minutes despite feeling exhausted and tired. Pushed through with determination – even a short session is better than none. Building daily discipline one step at a time.
+   
+
+  - - **Day 18/600 (January 14, 2026):** Studied for about 45 minutes reviewing previous material despite early work tomorrow and limited time. Pushing through fatigue to maintain momentum – even short sessions count toward the goal. 
     
     
 
