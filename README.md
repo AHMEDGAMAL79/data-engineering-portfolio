@@ -68,7 +68,7 @@ Let's build the future of data, one commit at a time. 🚀
   
   - - **Day 20/600 (January 16, 2026):** Studied English for 1 hour focusing on listening practice. Continuing daily commitment and building stronger comprehension through consistent effort.
     
-   - - **Day 21/600 (January 17, 2026):** Studied English for 40 minutes focusing on reading. Alhamdulillah, understood most words — clear improvement in vocabulary comprehension and confidence.
+   - - **Day 21/600 (January 17, 2026):** Studied English for 40 minutes focusing on reading. Alhamdulillah, understood most words — clear improvement in vocabulary comprehension and confidence.. 
     
     
 
