@@ -69,7 +69,18 @@ Let's build the future of data, one commit at a time. 🚀
   - - **Day 20/600 (January 16, 2026):** Studied English for 1 hour focusing on listening practice. Continuing daily commitment and building stronger comprehension through consistent effort.
     
    - - **Day 21/600 (January 17, 2026):** Studied English for 40 minutes focusing on reading. Alhamdulillah, understood most words — clear improvement in vocabulary comprehension and confidence... 
-    
+
+    - **Day 25/600 (January 20, 2026):** Studied English for 1 hour focusing on listening during travel to Dubai. Committed to daily practice even on the move.
+
+- **Day 26/600 (January 21, 2026):** Took a rest day after the exhausting 4-hour flight to Dubai. Resumed with 1 hour study the next day.
+
+- **Day 27/600 (January 22, 2026):** Studied English for 1 hour (45min listening to series + 45min reading) from new accommodation in Dubai. Building skills through enjoyable methods.
+
+- **Day 28/600 (January 23, 2026):** Studied English for half an hour listening, while preparing for Dubai. Determined not to miss a day.
+
+- **Day 29/600 (January 24, 2026):** Studied English for 1 hour listening on the plane to Dubai. Maintaining momentum during travel.
+
+- **Day 30/600 (January 25, 2026):** Studied English for half an hour listening from Cairo International Airport en route to Dubai. Consistent effort amid busy schedule.
     
 
 
