@@ -1,6 +1,6 @@
 # Ahmed Gamal - Data Engineering Journey
 
-Hi, I'm Ahmed — a passionate learner transitioning into the field of **Data Engineering** from scratch.
+Hi, I'm Ahmed — a passionate learner transitioning into the field of **Data Engineering** from scratch.. 
 
 This repository serves as my living portfolio and personal knowledge base, documenting my entire learning journey in a transparent and structured way. Here, you'll find my progress through foundational concepts, hands-on projects, tool explorations, and production-grade solutions as I build expertise in modern data engineering practices.
 
