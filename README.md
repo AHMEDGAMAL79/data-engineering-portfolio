@@ -95,5 +95,7 @@ Let's build the future of data, one commit at a time. 🚀
 
 - **Day 35/600 (January 30, 2026):** Studied English for 2 continuous hours focusing on listening and sentence repetition (shadowing). Improved pronunciation, rhythm, and listening comprehension through active practice.
 
+- **Day 36/600 (January 31, 2026):** Studied English for 2 hours and 30 minutes combining listening, reading, and shadowing. Focused on improving overall English proficiency to confidently start data engineering tools and concepts soon.
+
 
 
