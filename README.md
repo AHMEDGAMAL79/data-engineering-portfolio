@@ -97,5 +97,7 @@ Let's build the future of data, one commit at a time. 🚀
 
 - **Day 36/600 (January 31, 2026):** Studied English for 2 hours and 30 minutes combining listening, reading, and shadowing. Focused on improving overall English proficiency to confidently start data engineering tools and concepts soon.
 
+- **Day 37/600 (February 01, 2026):** Studied English for approximately 40 minutes focusing on listening. Kept the daily commitment going strong even after settling in Dubai.
+
 
 
